@@ -10,11 +10,14 @@ La segunda vez, tal vez solo tres veces el tiempo.
 
 Para el momento en el que lo hayas hecho correctamente una docena de veces, estarás trabajando tan rápido como limpio.
 
+![Awanta](https://i.ytimg.com/vi/i2HIJoT8LMc/maxresdefault.jpg)
+
 ## Prácticar crea permanencia, no perfección
 
 Si haces algo muchas veces, eventualmente se vuelve automático. Si prácticas malos hábitos, entonces estos se vuelven igual de permanentes.
 
-*La práctica perfecta crea perfección*
+>*La práctica perfecta crea perfección*
+
 
 ## Control de versiones
 
